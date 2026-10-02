@@ -210,7 +210,6 @@ I have authored and published technology-focused articles under the name **Shari
 
 2023 – 2025
 
-**CGPA: 7.39**
 
 ---
 
